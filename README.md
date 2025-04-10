@@ -1,1 +1,1 @@
-# reclaim reprupose store
+# reclaim repurpose store
